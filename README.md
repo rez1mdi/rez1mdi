@@ -1,4 +1,4 @@
-## Hi, I'm Rezvan (Tina) Moradi
+## Hi, I'm Rezvan Moradi
 
 Data analyst in Greensboro, NC. I'm completing an M.S. in Informatics & Analytics at UNC Greensboro (expected December 2027) and hold a B.S. in Accounting.
 
